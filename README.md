@@ -1,1 +1,1 @@
-CV: click [here](cv.pdf) to download (updated: 2. XI. 2021)
+CV: click [here](cv.pdf) to download (updated: 22. XII. 2021)
